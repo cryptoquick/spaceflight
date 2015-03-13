@@ -1,0 +1,1 @@
+Design for the regular promotion of the New Space industry and spaceflight in general.
